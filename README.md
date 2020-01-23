@@ -53,7 +53,7 @@ Also - keep in mind that a great employee may move between these categories natu
 
 ![](https://alexwitherspoon.com/publications/employee-performance-calibration-process/employee-performance-calibration-process-slides-04.png)
 
-To really make this happen, we list out the staff in each category, and then we highlight and focus on describing the staff simply and effectively in the slide deck. This is the foundational information for a conversation to help determine the best actions to take with a person, such as confirming they are ready for a promotion, or that a performance improvement plan makes sense. This conversation by it's nature needs to be held confidentially, and with support of HR to make sure it's facilitated well. When this is used properly, it allows for frequent honest conversation about how staff are doing, how to support them better, and help advocate and evangelize them when it makes to do so with leadership. 
+To really make this happen, we list out the staff in each category, and then we highlight and focus on describing the staff simply and effectively in the slide deck. This is the foundational information for a conversation to help determine the best actions to take with a person, such as confirming they are ready for a promotion, or that a performance improvement plan makes sense. This conversation by it's nature needs to be held confidentially, and with support of HR to make sure it's facilitated well. When this is used properly, it allows for frequent honest conversation about how staff are doing, how to support them better, and help advocate and evangelize them when it makes sense to do so with leadership. 
 
 ### Bias and Calibration
 
